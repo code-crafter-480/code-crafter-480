@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/c6112d32-865f-4d6c-a10c-0c65790040f7)
+![logo](https://github.com/user-attachments/assets/c6112d32-865f-4d6c-a10c-0c65790040f7)
 
 
 <h1 align="center">Hi there, I'm Sanjay 🙋🏽‍♂️</h1>
