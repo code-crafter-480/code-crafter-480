@@ -1,4 +1,4 @@
-![logo](https://github.com/user-attachments/assets/c6112d32-865f-4d6c-a10c-0c65790040f7)
+![logo](https://github.com/code-crafter-480/code-crafter-480/blob/main/dgdidfa-0a46e71a-b401-4b73-ac6c-80627deb1503.gif)
 
 
 <h1 align="center">Hi there, I'm Sanjay 🙋🏽‍♂️</h1>
